@@ -4,7 +4,19 @@ Until I enter the high school two months ago, I think I don't know anything.
 
 When I was a child, sky is closer, yes, so much closer.
 
+
+Have... Sorry but have we met before?
+
+No.
+
+My mistake.
+
 I broght breakfast.
+
+Thank you so much.
+It's my pleasure.
+
+
 
 
 It might be...
@@ -12,3 +24,5 @@ It might be...
 The happiest...
 
 Time of my life.
+
+
