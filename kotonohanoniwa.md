@@ -1,7 +1,8 @@
 # The garden of word
 
-Until I enter the high school, I think I don't know anything.
+Until I enter the high school two months ago, I think I don't know anything.
 
+When I was a child, sky is closer, yes, so much closer.
 
 I broght breakfast.
 
