@@ -25,4 +25,10 @@ The happiest...
 
 Time of my life.
 
+I love you.
 
+Yukino,
+
+Not Yukino. Miss Yukino.
+
+Thank you for your hospitality.
