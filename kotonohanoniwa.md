@@ -17,6 +17,16 @@ Thank you so much.
 It's my pleasure.
 
 
+Akiduki!
+
+Beach bash.
+
+I worked whole time.
+
+Whole time?
+
+
+Do you...know them?
 
 
 It might be...
