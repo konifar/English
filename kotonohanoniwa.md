@@ -73,6 +73,13 @@ Whole time?
 
 Do you...know them?
 
+Wait a minute. What happens to your face?
+
+I was acting like you and drunk much beer, then I tripped and fell from Yamanote platform.
+
+Oh, my god!
+
+I'm kidding. I just got a little fight.
 
 It might be...
 
