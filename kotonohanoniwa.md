@@ -61,6 +61,7 @@ I broght breakfast.
 Thank you so much.
 It's my pleasure.
 
+Hey, come on!
 
 Akiduki!
 
@@ -94,3 +95,5 @@ Yukino,
 Not Yukino. Miss Yukino.
 
 Thank you for your hospitality.
+
+Tell me god damn it! Tell me the little kids should xxx to the school!
