@@ -1,8 +1,12 @@
 # The garden of word
 
-Until I enter the high school two months ago, I thought I... I didn't know anything.
+Until I entered the high school two months ago, I thought I... I didn't know anything.
+
+warm, pushing against my bag, air conditioner against my face.
 
 When I was a little, the sky was closer, so much closer.
+
+That's why I wait a rain, sky coming. On most rainy morning, I don't take train. I up the station gate.
 
 Chocolate and beer... Seems familier then... Ah!
 
@@ -18,7 +22,14 @@ Right. Yeah, of course. My mistake.
 
 It's ok.
 
-Ah...! Have met us.
+Have met us.
+
+stay with me?
+
+----
+Rainy condition continues tonight.
+
+Nagasaki, Saga, Kumamoto.
 
 I'm home.
 
@@ -36,25 +47,65 @@ More for us? Did she say anything?
 
 Just said no. Don't come looking for me. So maybe we should.
 
-So I found place and move next month.
+I'm sure that she will be back by fighting with her boyfriend.
+
+So I found the place and I'll move in next month.
 
 With her?
 
 She is ready, I'm ready.
 
-That's why mom left.
+That's why mom left didn't you?
 
-She looks younger for age.
+You know, It's disgusting.
+
+OK! Fine!
+
+She looks young for age.
+
+OK, since I looks be you should wash dishes.
 
 I supporse so.
 
-Hey have you heard this?
+Sure.
+
+Hey, have you heard this?
 
 Hmm, what is this Haiku?
 
 I's a Tanka.
 
+OK.
 
+----
+
+What a joke.
+
+It's raining.
+
+Oh good morning.
+
+Good morning.
+
+Hey. Is the school holiday?
+
+What about you? Early retirement?
+
+I'm skipping to work again.
+
+Maybe you should eat something.
+
+You seems to know a lot about the subject.
+
+Oh no! It's not me! My mom is a drinker.
+
+It's ok.
+
+Maybe.
+
+Definitely.
+
+And then, just like that, it is the first day of Kanto's rainy season.
 
 I broght breakfast.
 
