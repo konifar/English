@@ -110,7 +110,12 @@ And then, just like that, it is the first day of Kanto's rainy season.
 I broght breakfast.
 
 Thank you so much.
+
 It's my pleasure.
+
+Are you talking about your job?
+
+A lot of things...
 
 Hey, come on!
 
@@ -124,6 +129,10 @@ Whole time?
 
 
 Do you...know them?
+
+You love her?
+
+You should be said thank you.
 
 Wait a minute. What happens to your face?
 
