@@ -107,6 +107,16 @@ Definitely.
 
 And then, just like that, it is the first day of Kanto's rainy season.
 
+Oh, hey good morning.
+
+Wow, that's beautiful.
+
+I can't see?
+
+No not yet. Maybe never.
+
+Come on. Sit down over there.
+
 I broght breakfast.
 
 Thank you so much.
