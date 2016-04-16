@@ -117,7 +117,13 @@ No not yet. Maybe never.
 
 Come on. Sit down over there.
 
-I broght breakfast.
+I broght breakfast. But I have enough too.
+
+I can cook you know.
+
+It's your own fault.
+
+No! I'm not. Can I have one another?
 
 Thank you so much.
 
@@ -146,7 +152,7 @@ You should be said thank you.
 
 Wait a minute. What happens to your face?
 
-I was acting like you and drunk much beer, then I tripped and fell from Yamanote platform.
+I was acting like you and drunk too much beer, then I tripped and fell from Yamanote platform.
 
 Oh, my god!
 
