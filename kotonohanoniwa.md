@@ -172,4 +172,6 @@ Not Yukino. Miss Yukino.
 
 Thank you for your hospitality.
 
+I hate you.
+
 Tell me god damn it! Tell me the little kids should xxx to the school!
