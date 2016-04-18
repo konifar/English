@@ -175,3 +175,7 @@ Thank you for your hospitality.
 I hate you.
 
 Tell me god damn it! Tell me the little kids should xxx to the school!
+
+My path.
+
+One day the path take me to her.
