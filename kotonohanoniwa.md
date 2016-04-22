@@ -1,7 +1,6 @@
 # The garden of word
 
-Until I entered the high school two months ago, I thought I... I didn't know anything.
-
+Until I entered the high school two months ago, I thought I... I didn't know anything.  
 warm, pushing against my bag, air conditioner against my face.
 
 When I was a little, the sky was closer, so much closer.
