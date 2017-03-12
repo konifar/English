@@ -25,8 +25,8 @@ That's why I wait the rain, as with the smells of the sky coming. On most rainy 
 
 > だから空の匂いを連れてきてくれる雨は好きで、雨の朝はよく、地下鉄には乗り換えずに改札を出る。 
 
-Chocolate and beer... 
-Seems familier then...  
+Chocolate, and beer... 
+She looks familiar then...  
 
 > チョコレートとビールって…  
 > でもこの人、どこかで…  
@@ -49,7 +49,7 @@ Right. Yeah, of course. My mistake.
 
 > すみません、人違いです。 
 
-It's ok.  
+It's okay.  
 
 > いいえ。
 
@@ -57,14 +57,18 @@ Have met us.
 
 > 会ってるかも。  
 
-thunder 
-Stay with me? 
+A faint clap of thunder 
+Clouded skies   
+Perhaps rain comes  
+And if so, stay with me? 
 
 > 鳴る神の  
 > 少し響みて  
 > さし曇り  
 > 雨も降らぬか  
 > 君を留めむ  
+
+----
 
 Rainy condition continues tonight. Nagasaki, Saga, Kumamoto.
 
