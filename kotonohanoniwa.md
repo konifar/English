@@ -1,25 +1,27 @@
 # The garden of word
 
-Until I entered the high school two months ago, I thought I... I didn't know anything.  
+Until I entered the high school two months ago, I thought I... I didn't know anything. 
 
 > こういうことを、2ヶ月前高校に入るまで俺は知らなかった。 
 
-warm, pushing against my bag, air conditioner against my face.  
+The dampness of my uniform's hem. wet of someone `?` umblerella against me.   
+The smells most of all, clinging to someone's suits. I `?` .  
+`?`, warm, pushing against my bag, the chill breeze of the air conditioner against my face.   
 
 > 制服の裾を濡らす他人の傘  
 > 誰かのスーツに染みついたナフタリンの匂い  
 > 背中に押付けられる体温  
 > 顔を吹きつける エアコンの不快な風  
 
-Shinjuku. Shinjuku.
+Shinjuku. Shinjuku station. Thank you for riding with us.
 
 > 新宿、新宿です。新宿に到着です。ご乗車ありがとうございました。
 
-When I was a little, the sky was closer, so much closer.
+When I was little, the sky was closer. So much closer.
 
 > 子供の頃、空はもっと、ずっと近かった。  
 
-That's why I wait a rain, sky coming. On most rainy morning, I don't take train. I up the station gate. 
+That's why I wait the rain, as with the smells of the sky coming. On most rainy morning, I don't take transfer. I exit out the station gate. 
 
 > だから空の匂いを連れてきてくれる雨は好きで、雨の朝はよく、地下鉄には乗り換えずに改札を出る。 
 
